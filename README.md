@@ -2,7 +2,7 @@
 - 👀 I’m interested in many things
 - 🌱 I’m currently learning THCS YB
 - 💞️ I’m looking to collaborate on everything
-- 📫 How to reach me fb : Hoanq Nga
+- 📫 How to reach me fb : Hoang Nga(Drowie)
 - 😄 Pronouns: ...
 - ⚡ Fun fact:I know how to draw and am a bit introverted
 
